@@ -1,1 +1,1 @@
-# rsschool-cv
+https://DimaZhiden.github.io/rsschool-cv/cv
